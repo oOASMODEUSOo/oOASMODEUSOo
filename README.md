@@ -18,11 +18,7 @@ I am still exploring the things around me and trying to see what works best for 
 
 👯‍♀️ I'm looking to collaborate on any kind of project
 
-🤔 I'm looking for mentor
-
 📫 How to reach me ig: \_ojas_07
-
-😄 Pronouns He/Him
 
 ⚡️ Fun fact: learning never ends!
 
